@@ -1,4 +1,4 @@
-Privacy Policy
+# Privacy Policy
 
 Updated effective: April 29, 2023
 
